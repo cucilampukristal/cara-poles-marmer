@@ -1,37 +1,52 @@
-## Welcome to GitHub Pages
+## MENERIMA JASA PEMBERSIHAN
+1. GENERAL CLEANING :
+    -  Gedung, Perkantoran, Ruko, Residence / Rumah, Apartment, Kampus / Sekolah, Rumah Sakit, Hotel, Rumah Ibadah, Dll.
+    -  Cuci Karpet, Cuci lampu kristal, Sofa, kursi Kantor, Spring Bed, Sofa Bed,  Cuci Kaca, Alucubond, Partisi, General Cleaning Kamar Mandi,Kristalisasi Lantai Marmer, Granit, Terasso, Keramik, Vinyl, Epoxy Lantai, dll
+2. MAINTENANCE CLEANING SERVICE REGULAR :
+Kantor, Ruko, Mall, Hotel, Apartment, Wisma, Guest House, Rumah Sakit, Gedung, Sekolah / Campus, dll
+3. MANPOWER SUPPLAY :
+Office Boy / Girl, Security, administrasi, Receptionist, Massanger, dll
+General Cleaning
+- rumah/perumahan, villa, kantor, gedung, apartement :
+perawatan dapur, laundry, perawatan lantai, perawatan kamar mandi, perawatan pribadi, perawatan umum .
+ Jasa Cleaning Service Profesional  menyajikan serangkaian perawatan
+ kami akan bekerja efisien dan terjadwal dengan cara dan metode yang sangat baik sehingga apa yang harus pembantu rumah tangga lakukan kami akan melalukannya dengan baik.
+Kami ahli dalam jasa kebersihan dan kami melakukan pekerjaan kami tidak hanya menjadi slogan tetapi kami memberikan bukti bukan janji sehingga anda dapat melihat bukti kepuasan anda, berkomitmen untuk bekerja maksimal bagi kepuasan pelanggan kami dapat mendisain program kebersihan sesuai dengan kebutuhan anda, pelanggan kami  kepedulian kami pada hal-hal yang kecil atau detail dengan harga yang kompetitif.
+ Apakah anda memerlukan jasa kebersihan harian atau mingguan atau bulanan.
+ Pembersihan mencakup langit langit, dinding, equipment yang ada didalamnya, lantai dan teras melalui metoda mengelap, menyapu dan mengepel dengan alat dan chemical yang kita siapkan.
+ General Cleaning adalah program pembersihan total seluruh ruangan seluruh area-area baik indoor maupun outdoor :
+ - Cleaning Bed Room
+ - Cleaning Dining Rom
+ - Cleaning Kitchen
+ - Cleaning Carpot
+ - Cleaning Staircase
+ - Cleaning Bath Room
+ - Cleaning sealing
+ - Cleaning Toilet Bowl
+ - Cleaning Bath tub/Shower room
+ - Cleaning Wasteful
+ - Cleaning Floor
+  
+1. General Cleaning Service :
+ - Kristalisasi Lantai marmer / granit
+ - Epoxy Lantai
+ - Coating Lantai Pabrik, Futsal
+ - Poles Lantai & Cuci Lantai Marmer, Granit, Keramik- Terasine, Viniel
+ - Cuci Kaca Gedung indoor & outdoor
+ - Cuci Alucubond, Aluminium, Steinliss
+ - Cuci Vertical Blind, Vitrase
+ - Cuci Sofa, Sofa bed, Springbed, Partisi & Carpet
+ - Pembersihan Toilet dan Kamar Mandi
+-  Cuci Lampu Kristal
 
-You can use the [editor on GitHub](https://github.com/cucilampukristal/cara-poles-marmer/edit/master/index.md) to maintain and preview the content for your website in Markdown files.
+2. Maintenance Cleaning Service :
+ - Perkantoran, Apartment, Mall, Rumah Sakit,
+ Sekolah / Campus, Pabrik, dll
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
-
-### Markdown
-
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
-
-```markdown
-Syntax highlighted code block
-
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/cucilampukristal/cara-poles-marmer/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://help.github.com/categories/github-pages-basics/) or [contact support](https://github.com/contact) and we’ll help you sort it out.
+3. Detail Cleaning :
+ - Rumah Baru / Renovasi, Rumah, Gedung, Apartment,
+ Mall, Perkantoran
+  4. Manpower Supplay :
+ - Crew maintenance, Office Boy / Girls
+ - Perbaikan / Renovasi Rumah Pengecatan
+ Apakah Anda memerlukan jasa kebersihan  harian atau mingguan atau bulanan, kami akan menyesuaikan program pembersih  khusus disesuaikan kebutuhan Anda. Dari tenaga sumber daya dan ahli yang kami miliki, Anda dapat membuktikan kwalitas pekerjaan yang  kami lakukan dengan tepat dan benar.
