@@ -1,4 +1,4 @@
-## MENERIMA JASA PEMBERSIHAN
+## MENERIMA JASA PEMBERSIHAN 021-88354281
 1. GENERAL CLEANING :
     -  Gedung, Perkantoran, Ruko, Residence / Rumah, Apartment, Kampus / Sekolah, Rumah Sakit, Hotel, Rumah Ibadah, Dll.
     -  Cuci Karpet, Cuci lampu kristal, Sofa, kursi Kantor, Spring Bed, Sofa Bed,  Cuci Kaca, Alucubond, Partisi, General Cleaning Kamar Mandi,Kristalisasi Lantai Marmer, Granit, Terasso, Keramik, Vinyl, Epoxy Lantai, dll
@@ -50,6 +50,4 @@ Kami ahli dalam jasa kebersihan dan kami melakukan pekerjaan kami tidak hanya me
  - Crew maintenance, Office Boy / Girls
  - Perbaikan / Renovasi Rumah Pengecatan
  Apakah Anda memerlukan jasa kebersihan  harian atau mingguan atau bulanan, kami akan menyesuaikan program pembersih  khusus disesuaikan kebutuhan Anda. Dari tenaga sumber daya dan ahli yang kami miliki, Anda dapat membuktikan kwalitas pekerjaan yang  kami lakukan dengan tepat dan benar.
- Hubungi Kami:
-   Telp/Fax  :  021 - 8835 4281
-   HP        :  08158349796
+ 
